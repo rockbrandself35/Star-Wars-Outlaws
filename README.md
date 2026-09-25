@@ -230,4 +230,4 @@ Star Wars Outlaws is offered as the full free version, with all features and upd
 Don't miss out on the chance to embark on an epic adventure in the Star Wars universe. **Download Star Wars Outlaws free today and become the bounty hunter you were meant to be!**
 
 ---
-**Last updated:** 2026-09-25 13:27:53 UTC
+**Last updated:** 2026-09-25 18:22:19 UTC
